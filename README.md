@@ -12,5 +12,6 @@ about me in pony town !
 + pls do not come up to me and argue about nothing i did wrong.. people did that to me alot of times!!
 +  im too shy to come near so i just sit there and pls! if u see me cuddling with my friends do not leave me out!!
 
+i can be ur e kitten but like pls dont ask for pics. im uncomfortable and have boundaries!!
 
 i got banned in my main account !!  anyways nini's out! 💗
